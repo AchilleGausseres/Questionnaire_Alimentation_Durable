@@ -1,5 +1,7 @@
 # Questionnaire_Alimentation_Durable
 
+https://docs.google.com/forms/d/e/1FAIpQLSfvQYFDIPgUyOUA2XVgwMjQkTDgKlvgaTzg54OT5YdeHa8oxQ/viewform?usp=sf_link
+
 Vous allez répondre à 35 questions sur vos pratiques alimentaires (courses, cuisine, déchets, etc.). Veuillez répondre au questionnaire de manière spontanée et honnête. 
 
 En répondant à ce questionnaire, vous gagnez une chance d'être tiré.e.s au sort et de recevoir un cadeau de remerciement à la participation au sondage. Veillez à bien rentrer le numéro de Jury 0 si vous faites ce questionnaire en ligne et tenter votre chance ! 
